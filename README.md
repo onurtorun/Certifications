@@ -1,1 +1,1 @@
-# Certifications
+# Coursera Specializations
